@@ -4,7 +4,7 @@ Welcoming Diversity
 
 A 7-minute guide
 
-about how you, yes you
+about how you, *yes you*
 
 can make your workplace friendlier
 
