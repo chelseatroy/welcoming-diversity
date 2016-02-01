@@ -1,2 +1,17 @@
 # Transgender and Non-Binary Colleagues
 
+##Transgender Colleagues
+
+What does it mean to be transgender? If someone is transitioning from male to female, she was not born a man that is now becoming a woman. [She was born a](https://www.google.com/url?q=http://blog.ted.com/7-talks-on-the-transgender-experience/&sa=D&ust=1454345389651000&usg=AFQjCNFjBleOVtz2-CY6SQsuNKy6HVa2TA) [woman](https://www.google.com/url?q=http://blog.ted.com/7-talks-on-the-transgender-experience/&sa=D&ust=1454345389651000&usg=AFQjCNFjBleOVtz2-CY6SQsuNKy6HVa2TA)[, and has always been a](https://www.google.com/url?q=http://blog.ted.com/7-talks-on-the-transgender-experience/&sa=D&ust=1454345389652000&usg=AFQjCNFMFvj1qAs2vKJ5LqPmUx9YdFA1Lg) [woman](https://www.google.com/url?q=http://blog.ted.com/7-talks-on-the-transgender-experience/&sa=D&ust=1454345389652000&usg=AFQjCNFMFvj1qAs2vKJ5LqPmUx9YdFA1Lg)[, assigned male at birth.](https://www.google.com/url?q=http://blog.ted.com/7-talks-on-the-transgender-experience/&sa=D&ust=1454345389653000&usg=AFQjCNGGT4bvD62ObYGKF6u6XdxalEoBwg) The same goes for transgender men. These individuals often grow up feeling, at their core, wrong about the gender that others see them to be. They transition into the gender role that represents who they are and that has always felt right to them.
+
+When your transgender colleague asks to be addressed with specific pronouns, use those pronouns. If you are not sure which pronouns to use, ask the person you are addressing—not someone else. If your colleague changes his or her name, refer to him or her by his or her chosen name. Do not make references to his or her previous name, or talk about ‘back when [so and so] was [different gender].’  Do not ask questions about hormones, surgeries[^b], or sex parts. Just like cisgender people, transgender people have a right to privacy when it comes to their bodies. Your colleague’s body is no one else’s business unless he or she chooses to discuss it.
+
+If your colleague comes out to you as transgender (either pre-transition or post-transition), do not share this with other people. Your colleague’s history (or current experience) of transitioning genders is personal, and it is his or hers to share if and when he/she chooses to.
+
+##Non-Binary/Intersex/Agender Colleagues
+
+Just as some people grow up feeling that they’ve been placed in the wrong body for their gender, others grow up feeling that they do not belong to a gender, or that they belong to both, or somewhere in between.
+
+Use those pronouns that your colleague asks you to use. Your colleague might go by he/she, or both, or neither. Your colleague might go by ‘they.’ ([It is grammatically correct and appropriate to use ‘they’ to refer to a singular human](https://www.google.com/url?q=http://www.wsj.com/articles/can-they-be-accepted-as-a-singular-pronoun-1428686651&sa=D&ust=1454345389660000&usg=AFQjCNGwbHV91VMraUuAvEqVQF_HeO0pYw)). Your colleague might go by [“it” or “yo” or “zir/zey.”](https://www.google.com/url?q=http://pronoun.is/&sa=D&ust=1454345389661000&usg=AFQjCNEAR-GYWfRPsJschb-ScsLjxHY96Q) 
+
+Your colleague may present as male or female and still identify as non-binary/agender/intersex. Just because someone “looks female” does not give you license to refer to them as such. If you are not sure which pronouns to use, ask the person you are addressing—not someone else. Again, do not ask questions about sex parts. If your colleague changes their name, refer to them by their chosen name.
