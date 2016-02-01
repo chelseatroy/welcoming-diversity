@@ -1,4 +1,4 @@
-# Welcoming Diversity {#welcoming-diversity}
+# Welcoming Diversity 
 
 
 A 7-minute guide
