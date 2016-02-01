@@ -1,6 +1,6 @@
 # On (Binary) Gender
 
-Let’s talk about men and women in the workplace. Men and women behave differently in the workplace, and it’s valuable for you to understand those differences.
+**Let’s talk about men and women in the workplace.** Men and women behave differently in the workplace, and it’s valuable for you to understand those differences.
 
 [Men tend to have more confidence in their abilities than women do](https://www.google.com/url?q=http://www.theatlantic.com/magazine/archive/2014/05/the-confidence-gap/359815/&sa=D&ust=1454345389628000&usg=AFQjCNGJJAe-t_xLz3-ba6brw5tKWa7Wiw). So women often undersell themselves, and men often oversell themselves. This results in major differences between how men and women’s careers progress.
 
@@ -18,7 +18,7 @@ It is commonly believed that men get promotions and raises more often than women
 
 First of all, this is not as true as we thought. [Among a sample of 3,000 men and women who both asked for raises and promotions](https://www.google.com/url?q=http://www.catalyst.org/knowledge/myth-ideal-worker-does-doing-all-right-things-really-get-women-ahead&sa=D&ust=1454345389639000&usg=AFQjCNFlcrs2FzigGsOA82C8e3q28hq1gA) with approximately equal frequency over a 10 year period, women still received less.   
 
-Second of all, the misconception that men ask for more suggests that the solution to sexism in the workplace is for women to “act more like men.” This suggests that women being from different from men is the problem. It says, “we want diverse people provided that they all think and act exactly the same way.” We want people to think differently in the workplace; that’s why diversity is so important in the first place.[^a]
+Second of all, the misconception that men ask for more suggests that the solution to sexism in the workplace is for women to “act more like men.” This suggests that women being from different from men is the problem. It says, “we want diverse people provided that they all think and act exactly the same way.” **We want people to think differently in the workplace; that’s why diversity is so important in the first place.**
 
 Specifically, asking women to act more like men denies the value of the strengths and abilities that women bring to the table, including listening abilities, empathy, nurturing abilities, and collaborative abilities. By asking women to “act more like men,” we are asking them to do one of two things:
 
