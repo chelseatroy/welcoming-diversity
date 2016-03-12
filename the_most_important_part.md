@@ -6,12 +6,13 @@ What if you don't understand *why* your colleague of a different gender behaves 
 
 **This is okay. You don't have to get it: you can respect someone else's life without having to understand it.**
 
-No human is sub-human: all humans deserve respect. Ways to demonstrate respect include:
+No human is sub-human: all humans deserve respect. For example, you can do any of the following to demonstrate respect for other people, *regardless* of your differences:
 
-* Listening to your colleagues when they speak—and not interrupting them.
-* Assuming that your colleagues are capable people who make decisions for valid reasons. 
-* Acknowledging the validity of your colleague's position if you disagree: you can present your own case without invalidating someone else's case. 
-
+* Listen to your colleagues when they speak—and do not interrupt them.
+* Keep your mouth shut about decisions that have nothing to do with you—like your colleague's dating, dietary, or other personal choices.
+* On work decisions, assume that your colleagues are capable people who make choices for valid reasons. 
+* Acknowledge the validity of your colleague's position if you disagree: you can present your own case without invalidating someone else's case. In fact, when you re-state your colleague's case, you demonstrate to them that you listened to them, you give them the chance to fix any misunderstandings, and you make them more likely to listen to your side of the story. 
+* If you notice your colleague in a situation that you think might make them uncomfortable, pull them aside after the fact and explain that you don't mean to pry, but you want to make sure that they are okay. If they are not okay, ask them if they would like *you* to address whatever made them uncomfortable. More on this in the next section.
 
 ## Why it's so helpful for you to know this stuff
 
