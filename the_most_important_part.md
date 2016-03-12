@@ -2,6 +2,17 @@
 
 ## You don't have to understand someone to respect them
 
+What if you don't understand *why* your colleague of a different gender behaves the way they do? What if you cannot imagine dating the kind of people that they date? 
+
+**This is okay. You don't have to get it: you can respect someone else's life without having to understand it.**
+
+No human is sub-human: all humans deserve respect. Ways to demonstrate respect include:
+
+* Listening to your colleagues when they speak—and not interrupting them.
+* Assuming that your colleagues are capable people who make decisions for valid reasons. 
+* Acknowledging the validity of your colleague's position if you disagree: you can present your own case without invalidating someone else's case. 
+
+
 ## Why it's so helpful for you to know this stuff
 
 *Maybe you do not fall into any of the categories that we have discussed.* Or maybe you fall into one of them, but not the others. Why is it important for you to know about how to interact with people who are different from you? 
