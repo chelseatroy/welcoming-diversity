@@ -4,7 +4,7 @@
 
 A person’s orientation is personal information: this means that it should be their decision who knows about it and when. People have lots of reasons for not fully “coming out.” The fact that you know someone’s orientation is not a license to broadcast it.
 
-If you are not certain about your colleague’s orientation: **do not ask.** It is none of your business. This is different from pronouns. We do ask about the pronouns because, at work, we want to refer to people in a way that lines up with their identities. By contrast, at work, our colleague’s sexualities are never relevant to our projects.
+If you are not certain about your colleague’s orientation: **do not ask.** It is none of your business. This is different from pronouns. We *do* ask about the pronouns because, at work, we want to refer to people in a way that lines up with their identities. By contrast, at work, our colleague’s sexualities are never relevant to our projects.
 
 *But what if I want to date my colleague?* Ask your colleague on a date. No need to ask for sexual orientation.
 
