@@ -8,7 +8,7 @@ Here are a few choice resources that you can look at as much as you like.
 
 [It’s Pronounced Metrosexual](https://www.google.com/url?q=http://itspronouncedmetrosexual.com/&sa=D&ust=1454345389673000&usg=AFQjCNFdPOgKazza5iKdNTaGZYUiOxmtyQ): This blog focuses on the generalities and the nuances of sex, gender, and sexual orientation in much greater detail than we have here. It’s funny, interesting, and safe for work. All of this author’s writing is freely available—including his books.
 
-[Model View Culture](https://www.google.com/url?q=https://modelviewculture.com/&sa=D&ust=1454345389674000&usg=AFQjCNF6B-zi908X8tLZTiixpC7kvosq3A): This monthly e-magazine covers sex differences, racism, and ableism. It looks at codes of conduct, intersectional movements, and more. And it looks at several different segments of the tech industry, from gaming to DJing to social networks. Click on “issues” and then “see all articles” for handy lists to browse!
+[Model View Culture](https://www.google.com/url?q=https://modelviewculture.com/&sa=D&ust=1454345389674000&usg=AFQjCNF6B-zi908X8tLZTiixpC7kvosq3A): This monthly e-magazine covers sex differences, racism, and ableism. It looks at codes of conduct, intersectional movements, and more. Click on “issues” and then “see all articles” for handy lists to browse!
 
 [Empowered versus Objectified: How to Tell the Difference](http://everydayfeminism.com/2015/04/empowered-vs-objectified/): A helpful comic. 
 
