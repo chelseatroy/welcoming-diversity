@@ -1,8 +1,6 @@
 # If You are Interested in Learning More
 
-If you are interested in learning more:
-
-Here are a few choice resources that you can look at as much as you like.
+If you are interested in learning more, here are some resources:
 
 [The Bias](http://thebias.com/): A blog about inclusiveness in tech and geek culture. If you read no other post on the blog, at least read [Why Didn't They Talk to you Privately?](http://thebias.com/2016/02/09/why-didnt-they-talk-to-you-privately-on-call-out-culture-and-power-differentials/) on being called out in public for inclusion-related mistakes.
 
