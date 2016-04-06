@@ -34,5 +34,9 @@ But when you learn about, say, trans issues and you're **not** a trans person, y
 
 You may never have to deal with the crappiness of getting misgendered. But you can choose to address the situation when others in your workplace misgender someone. **Often, the voices of people outside the marginalized group carry more weight than the voices of people inside it.** When men speak out in favor of feminism, people notice. When someone sticks up for someone else, people notice. And now, you have the ability to become one of those people whose voice people notice—and also impact your workplace in a very positive way.
 
+##A Toolkit for Allies
+
+
+
 
 
