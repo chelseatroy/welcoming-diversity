@@ -1,4 +1,4 @@
-# Transgender and Non-Binary Colleagues
+# Transgender Colleagues and the Gender Spectrum
 
 ##Transgender Colleagues
 
@@ -8,7 +8,7 @@ When your transgender colleague asks to be addressed with specific pronouns, use
 
 If your colleague comes out to you as transgender (either pre-transition or post-transition), do not share this with other people. Your colleague’s history (or current experience) of transitioning genders is personal, and it is his or hers to share if and when he/she chooses to.
 
-##Non-Binary/Intersex/Agender Colleagues
+##A Spectrum of Genders
 
 Just as some people grow up feeling that they’ve been placed in the wrong body for their gender, others grow up feeling that they do not belong to a gender, or that they belong to both, or somewhere in between.
 
