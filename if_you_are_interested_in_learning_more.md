@@ -26,4 +26,4 @@ If you are interested in learning more, here are some resources:
 
 [Implicit Bias Talks](https://managingbias.fb.com/","Implicit Bias Talks @ Facebook):	We went through these in the SF office during a lunch and learn. Really good video series on this subject
 
-[Straight White Male: The Lowest Difficulty Setting There Is](http://whatever.scalzi.com/2012/05/15/straight-white-male-the-lowest-difficulty-setting-there-is/):	Written by a white male himself, Scalzi speaks geek (he's a sci-fi author) and compares "privilege" to game difficulty settings. Can help folks "get it" if they're wary of the word "privilege" per se. In a tech-heavy space like Pivotal, speaking geek can be important for that first moment of really understanding.
+[Straight White Male: The Lowest Difficulty Setting There Is](http://whatever.scalzi.com/2012/05/15/straight-white-male-the-lowest-difficulty-setting-there-is/):Written by a white male himself, Scalzi compares "privilege" to game difficulty settings. Can help folks "get it" if they're wary of the word "privilege" per se. In a tech-heavy space like Pivotal, speaking geek can be important for that first moment of really understanding.
