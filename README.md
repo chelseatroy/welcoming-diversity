@@ -1,12 +1,12 @@
 # Welcoming Diversity 
 
-A 7-minute guide
+###A 7-minute guide
 
-about how you, *yes you*
+###about how you, *yes you*
 
-can make your workplace friendlier
+###can make your workplace friendlier
 
-for underrepresented groups
+###for underrepresented groups
 
 
 
